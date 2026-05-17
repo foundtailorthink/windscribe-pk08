@@ -1,10 +1,10 @@
-Elite Windscribe Plugin | streaming optimization + torrenting support is the best Windscribe plugin with streaming optimization and torrenting support. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/windscribe-pk08/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
