@@ -1,4 +1,4 @@
-
+Elite Windscribe Plugin | otimização para streaming + suporte a torrent é o melhor Windscribe plugin com otimização para streaming e suporte a torrent. Seguro e otimizado.
 
 
 
